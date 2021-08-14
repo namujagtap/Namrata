@@ -1,2 +1,1 @@
-# Namrata
-NamrataIndustrialTraining
+Namrata Balasaheb Jagtap
